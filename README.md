@@ -13,4 +13,4 @@ Su secuela fue Rush Hour 2, también un éxito de taquilla.
 ![img](https://vignette.wikia.nocookie.net/doblaje/images/8/84/Rush_Hour_2.jpg/revision/latest/scale-to-width-down/335?cb=20110911025243&path-prefix=es)
 
 
-#EN CASO DE QUE LEAS ESTO. TE QUIERO MUCHO <3
+# EN CASO DE QUE LEAS ESTO. TE QUIERO MUCHO <3
